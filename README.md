@@ -1,1 +1,1 @@
-# Batuhan-G-neri-Portfolio-with-HTML-CSS-and-JavaScript.-
+# Batuhan-Guneri-Portfolio-with-HTML-CSS-and-JavaScript.
